@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @rohitsaijanga
-- 👀 I’m interested in Climate Change and Finance
 - 🌱 I’m currently learning Climate Finance at Imperial College London
 - 💞️ I’m looking to collaborate on innovative finance solutions for sustainability.
 - 📫 How to reach me : linkedin/rohitsaijanga 
